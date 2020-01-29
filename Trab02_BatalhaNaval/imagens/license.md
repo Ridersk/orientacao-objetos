@@ -1,0 +1,1 @@
+["Sea Warfare set (Ships and more)"](https://opengameart.org/content/sea-warfare-set-ships-and-more) by [Lowder2](https://opengameart.org/users/lowder2) is licensed under [CC BY 3.0](https://creativecommons.org/licenses/by/3.0/)
